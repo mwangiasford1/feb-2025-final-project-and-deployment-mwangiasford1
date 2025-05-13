@@ -1,3 +1,7 @@
+
+![Leonardo_Phoenix_10_Heres_a_pr![Uploading Leonardo_Phoenix_10_Heres_a_prompt_you_can_use_to_generate_a_l_3 (1).jpg…]()mpt_you_can_use_to_generate_a_l_3 (1)](https://github.com/user-attachments/assets/2f228b28-0dea-408e-8cae-394ae77ab390)
+
+
 ## **Freemarket: E-Commerce Project Documentation**
 
 ### **1. Project Overview**
